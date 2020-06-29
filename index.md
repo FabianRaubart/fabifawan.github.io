@@ -16,4 +16,4 @@ He survived the Fifth Eclipse and is hence marked with the Brand of Sacrifice.
 
 > If one can't live their life the way the want, they might as well die.
 
-<img src="https://w7.pngwing.com/pngs/733/891/png-transparent-guts-griffith-casca-berserk-vol-1-manga-manga-monochrome-fictional-character.png" />
+<img src="https://i.pinimg.com/236x/97/24/28/9724288a1f6c0cee86f7f3ff4893b8da--manga-drawing-manga-art.jpg" />
