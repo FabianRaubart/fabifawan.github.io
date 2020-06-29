@@ -15,3 +15,5 @@ He survived the Fifth Eclipse and is hence marked with the Brand of Sacrifice.
 * owner of the Dragon Slayer
 
 > If one can't live their life the way the want, they might as well die.
+
+<img src="https://w7.pngwing.com/pngs/733/891/png-transparent-guts-griffith-casca-berserk-vol-1-manga-manga-monochrome-fictional-character.png" />
