@@ -2,3 +2,14 @@
 
 Guts is a former mercenary and was a captain of the Band of the Falcon. 
 He survived the Fifth Eclipse and is hence marked with the Brand of Sacrifice.
+
+## Traits
+
+* known as:
+	* "Hundred Man Slayer"
+	* "Black Swordsman"
+	* "Branded Swordsman"
+* missing right eye and left forearm
+* bearer of the Brand of Sacrifice
+* wearer of Berserker Armor
+* owner of the Dragon Slayer
