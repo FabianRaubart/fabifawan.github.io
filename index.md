@@ -13,3 +13,5 @@ He survived the Fifth Eclipse and is hence marked with the Brand of Sacrifice.
 * bearer of the Brand of Sacrifice
 * wearer of Berserker Armor
 * owner of the Dragon Slayer
+
+> If one can't live their life the way the want, they might as well die.
